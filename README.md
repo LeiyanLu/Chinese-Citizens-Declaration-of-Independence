@@ -31,6 +31,7 @@
   <p><b>永不</b> 承认 <i>中国共产党</i> 代表 <b>祥和、友善与勤奋</b> 的 中国公民</p>
   <p><b>永不</b> 与 <i>中国共产党</i> <b>有任何关系</b>，<b>永不 与党员建立社交联系</b></p>  
 </div>
+
 ![FR7aTyeWQAAoGJY](https://user-images.githubusercontent.com/105064673/167163116-d00f4533-8f09-46c4-87e2-ae40acb30e47.jpg)
 
 
