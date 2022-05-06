@@ -1,6 +1,6 @@
 # Chinese Citizens Declaration of Independence
-<p>鉴于本人目前还是中国公民，在此为本人 <i><b>思想</b></i>、<i><b>行为</b></i> 和 <i><b>言论</b></i> 独立于 <b>中华人民共和国</b >和 <b>中国共产党</b>，特此撰写<b>《个人独立声明》</b>。 </p>  
-<p><b>本人在此文件上庄重签字，具有法律效力</b>。起草于 <b>2022年5月4日</b> 美利坚合众国，由本人推特号<a href="https://twitter.com/TakeDownTheCCP">@TakeDownTheCCP</a>版权发布，可以转载、修改和重新发布，修改后的版本不代表本人观点。</p>
+<p>鉴于本人目前还是中国公民，在此为本人 <i><b>思想</b></i>、<i><b>行为</b></i> 和 <i><b>言论</b></i> 独立于 <b>中华人民共和国</b > 和 <b>中国共产党</b>，特此撰写<b>《个人独立声明》</b>。 </p>  
+<p><b>本人在此文件上庄重签字，具有法律效力</b>。起草于 <b>2022年5月4日</b> 美利坚合众国，由本人推特号<a href="https://twitter.com/TakeDownTheCCP"><b>@TakeDownTheCCP</b></a>版权发布，可以转载、修改和重新发布，修改后的版本不代表本人观点。</p>
 <div align="center">
   <h1>个人独立声明</h1>
   <h5>2022年5月4日</h5>
